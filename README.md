@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **smartsamarth77@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1XiBe1ZoRWt_fpzbQ2I7re7Rw0ansqitx/view](https://drive.google.com/file/d/1XiBe1ZoRWt_fpzbQ2I7re7Rw0ansqitx/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1IHpjZ3ubPT3sg685clnM96ffVm0lqmXa/view?usp=drive_link](https://drive.google.com/file/d/1IHpjZ3ubPT3sg685clnM96ffVm0lqmXa/view?usp=drive_link)
 
 - ⚡ Fun fact **I can Dunk 🏀**
 
